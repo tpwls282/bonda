@@ -1,3 +1,0 @@
-# bonda
-
-# sfasdfdsf
